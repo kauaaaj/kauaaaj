@@ -1,7 +1,5 @@
 *BEM vindos*
-*ao blg do kaua lucas*
-
-
+https://media1.tenor.com/m/RHYYhjV11SwAAAAd/ronaldinho-flamengo.gif
 
 
 
